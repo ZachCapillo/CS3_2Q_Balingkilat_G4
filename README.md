@@ -5,7 +5,7 @@ This is the group that would most likely fail the subject.
 the "leader"
 
 # Lance William L. Cass
-the assistant
+I like playing sports like basketball football and badminton. I am the supposed assistant to the leader.
 
 # Lloydrie A. Perez
 the scout
