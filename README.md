@@ -3,3 +3,6 @@ This the project repository of group four of Balingkilat
 
 # Zach Radix P. Capillo
 the "leader"
+
+# Lance William L. Cass
+the assistant
