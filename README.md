@@ -6,3 +6,6 @@ the "leader"
 
 # Lance William L. Cass
 the assistant
+
+# Lloydrie A. Perez
+the scout
