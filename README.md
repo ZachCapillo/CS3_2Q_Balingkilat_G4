@@ -8,4 +8,4 @@ My second name Radix is barely used so you can use it. I like a lot of food and 
 I like playing sports like basketball football and badminton. I am the supposed assistant to the leader.
 
 # Lloydrie A. Perez
-the scout
+Keenutchie|Cassava Cake|Bball and Football|The scout
